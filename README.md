@@ -1,5 +1,5 @@
 ##### ˶ˊᜊˋ˶)) CAT'S EVERYWHERE .ᐟ.ᐟ SO CUTEEE .ᐟ.ᐟ
-![](https://files.catbox.moe/zl4cue.gif)
+![ue..](https://files.catbox.moe/h3w1s3.png)
  _I'm mostly online when talking to **Loveine**, so i might not notice if you talk to me thru public chat. I have low social battery and sudden mood swings that may affect social interactions as well._
 
 _If I disappear outta nowhere, I'm just overwhelmed or my phone died. I might come back later, or not._
