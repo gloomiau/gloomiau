@@ -3,6 +3,8 @@
 I'm mostly online when talking to **Loveine**, so i might not notice if you talk to me thru public chat. I have low social battery and sudden mood swings that may affect social interactions as well.
 
 _If I disappear outta nowhere, I'm just overwhelmed or my phone died. I might come back later, or not._
+
+please DNI if you're gonna RP w me or if you're a double (Another Azul Riako/Yume/Whatever)
 <!--
 **gloomiau/gloomiau** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
