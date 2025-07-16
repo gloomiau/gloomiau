@@ -1,10 +1,8 @@
 ##### ˶ˊᜊˋ˶)) CAT'S EVERYWHERE .ᐟ.ᐟ SO CUTEEE .ᐟ.ᐟ
-[![art by @tbr0009 on twt](https://files.catbox.moe/5ehs0l.png)](https://x.com/tbr0009/status/1921899870085861426?t=kX4GveYS-zV75c_gPcI33w&s=19)
- _I'm mostly online when talking to **Loveine**, so i might not notice if you talk to me thru public chat. I have low social battery and sudden mood swings that may affect social interactions as well._
+_I'm mostly online when talking to **Loveine**, so i might not notice if you talk to me thru public chat. I have low social battery and sudden mood swings that may affect social interactions as well._
 
 _If I disappear outta nowhere, I'm just overwhelmed or my phone died. I might come back later, or not. I apologize._
 
-![](https://files.catbox.moe/35a2ai.png)
 _I have some stuff going on w my head, i'd rather not specify anything but please be aware **I can only function in a specific way** and I will be avoiding you if I feel too out of my comfort zone / too unsafe._
 
 _please **DNI** if you're gonna RP w me , if you like incest and lolisho or if you're a double ( **Another Azul riako / yume** )_
